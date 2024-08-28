@@ -7,3 +7,4 @@ My current research interests primarily revolve around *Social Computing* and *A
 **Links** 🔗 
 - [Homepage](https://harryhe11.github.io/)
 - [Google Scholar](https://scholar.google.com/citations?user=cCIc3UIAAAAJ&hl=en)
+- [Twitter](https://x.com/HeHarry_11)
